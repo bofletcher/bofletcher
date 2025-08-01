@@ -1,12 +1,4 @@
 JESUS IS LORD
-
-
-OBSESSIVE ENTHUSIASM
-&
-IRREPRESSIBLE OPTIMISM
-
-THE WINNING FORMULA
-
 <!--
 **bofletcher/bofletcher** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
